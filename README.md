@@ -1,2 +1,2 @@
-# LoudNoisesBrightLights.github.io
-loudnoisesbrightlights.co.uk
+# Loud Noises Bright Lights
+[Website](loudnoisesbrightlights.co.uk)
